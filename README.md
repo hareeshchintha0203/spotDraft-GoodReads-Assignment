@@ -1,0 +1,1 @@
+# spotDraft-GoodReads-Assignment
